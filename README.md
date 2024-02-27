@@ -1,7 +1,7 @@
 <img src="https://i.imgur.com/ZNNlN2U.png&=80" width="400">
 
 ***
-<p align="center"> main rentry
+<p align="center"> still a wip, be patience
 
 <!--
 **P3reload/P3reload** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
