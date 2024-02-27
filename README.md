@@ -1,4 +1,4 @@
-<img src="https://i.imgur.com/ZNNlN2U.png&=80" width="400">
+<p align="center"><img src="https://i.imgur.com/ZNNlN2U.png&=80" width="400">
 
 ***
 <p align="center"> still a wip, be patience
