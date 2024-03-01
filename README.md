@@ -4,7 +4,7 @@
 <p align ="center">hai!! my name is reo
   
 <p align="center"> iam an artist and i love rentrying ^_^
-  currently fixated on P3
+<p align="center">currently fixated on P3
 <!--
 **P3reload/P3reload** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
