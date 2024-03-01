@@ -1,7 +1,7 @@
 <p align="center"><img src="https://i.imgur.com/ZNNlN2U.png&=80" width="400">
 
 ***
-hai!! my name is reo
+<p align ="center">hai!! my name is reo
   
 iam an artist and i love rentrying ^_^
 currently fixated on P3
