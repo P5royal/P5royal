@@ -3,10 +3,8 @@
 ***
 <p align ="center">hai!! my name is reo 
 
->[main rentry](https://rentry.co/cinnamonp)
-  
 <p align="center"> iam an artist and i love rentrying ^_^
-<p align="center">currently fixated on P3
+><p align="center">currently fixated on P3
 <!--
 **P3reload/P3reload** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
