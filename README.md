@@ -1,7 +1,7 @@
 <p align="center"><img src="https://i.imgur.com/ZNNlN2U.png&=80" width="400">
 
 ***
-<p align ="center">hai!! my name is reo
+<p align ="center">hai!! my name is reo <3 [main rentry](https://rentry.co/cinnamonp)
   
 <p align="center"> iam an artist and i love rentrying ^_^
 <p align="center">currently fixated on P3
