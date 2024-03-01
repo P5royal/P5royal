@@ -1,8 +1,9 @@
 <p align="center"><img src="https://i.imgur.com/ZNNlN2U.png&=80" width="400">
 
 ***
-<p align="center"> still a wip, be patient 
-<p align="center"> "god. ive been infected" - cora with a p5 profile
+<p align="center"> hai!! my name is reo 
+<p align="center"> iam an artist, i draw , edit images and do rentries
+<p align="center"> lerning how to edit videos and make carrds!^^
 <!--
 **P3reload/P3reload** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
