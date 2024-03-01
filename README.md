@@ -1,7 +1,8 @@
 <p align="center"><img src="https://i.imgur.com/ZNNlN2U.png&=80" width="400">
 
 ***
-<p align="center"> hai!! my name is reo 
+<p align="center"> hai!! my name is reo
+  
 <p align="center"> iam an artist, i draw , edit images and do rentries
 <p align="center"> lerning how to edit videos and make carrds!^^
 <!--
