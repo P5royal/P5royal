@@ -3,8 +3,8 @@
 ***
 <p align="center"> hai!! my name is reo
   
-<p align="center"> iam an artist, i draw , edit images and do rentries
-<p align="center"> lerning how to edit videos and make carrds!^^
+<p align="center"> iam an artist and i love rentrying ^_^
+<p align="center"> currently fixated on P3
 <!--
 **P3reload/P3reload** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
