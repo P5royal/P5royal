@@ -2,7 +2,7 @@
 
 ***
 <p align ="center">hai!! my name is reo , iam an artist and i love rentrying ^_^
->currently fixated on p3 <p align="center">the images of my rentry can take a while to load bcz of how big they are, wait a few secs or refresh the page
+> currently fixated on p3 <p align="center">the images of my rentry can take a while to load bcz of how big they are, wait a few secs or refresh the page
 <!--
 **P3reload/P3reload** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
