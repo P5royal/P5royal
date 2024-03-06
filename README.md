@@ -7,6 +7,6 @@
 
 ㅤ✩ㅤrentry can glitch, wait a few secs
 
-✮ㅤㅤㅤㅤㅤㅤ[prounouns](https://pronouns.cc/@kureomi) [lovemail](https://rentry.co/lovemailreo)
+✮ㅤㅤㅤ[prounouns](https://pronouns.cc/@kureomi) [lovemail](https://rentry.co/lovemailreo) [mainrentry](https://rentry.co/cinnamonp)
 
 
