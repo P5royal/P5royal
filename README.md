@@ -3,10 +3,10 @@
 ㅤ
 ✩ㅤhai!! my name is reo , i love rentries
 
-✮ㅤㅤㅤㅤcurrently fixated on p3
+✮ㅤㅤㅤㅤcurrently fixated on p3 ♡
 
 ㅤ✩ㅤrentry can glitch, wait a few secs
 
-✮ㅤㅤㅤ[prounouns](https://pronouns.cc/@kureomi) [lovemail](https://rentry.co/lovemailreo) [mainrentry](https://rentry.co/cinnamonp)
+✮ㅤㅤㅤㅤ[prns](https://prns.cc/@kureomi) [lovemail](https://rentry.co/lovemailreo) [mainrentry](https://rentry.co/cinnamonp)
 
 
