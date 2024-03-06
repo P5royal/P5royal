@@ -5,6 +5,6 @@
 ㅤㅤㅤㅤ✮ currently fixated on p3 ♡
 
 ㅤ✩ㅤrentry can glitch, wait a few secs
-ㅤㅤㅤㅤㅤ✮ [prns](https://pronouns.cc/@kureomi) [lovemail](https://rentry.co/lovemailreo) [mainrentry](https://rentry.co/cinnamonp)
+ㅤㅤㅤㅤㅤㅤ.✮ [prns](https://pronouns.cc/@kureomi) [lovemail](https://rentry.co/lovemailreo) [mainrentry](https://rentry.co/cinnamonp)
 
 
