@@ -6,6 +6,8 @@
 <!--
 **P3reload/P3reload** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
+[prounouns](https://pronouns.cc/@kureomi) [lovemail](https://rentry.co/lovemailreo)
+
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
