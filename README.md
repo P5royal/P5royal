@@ -14,7 +14,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤsign my [guestbook](https://kureomi.123guestbook.com/) pslpsls
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤmostly offtab c+h⁠ pls ♡ 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤmostly offtab, c+h⁠ pls ♡ 
 
 <img src="https://i.imgur.com/qBiejRY.png&=80" width="400">
 ㅤ
