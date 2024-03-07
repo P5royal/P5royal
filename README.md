@@ -6,7 +6,7 @@
 
 ㅤㅤㅤㅤㅤrentry can glitch, wait a few secs
 
-ㅤㅤㅤㅤㅤㅤㅤ[prns](https://pronouns.cc/@kureomi) [lovemail](https://rentry.co/lovemailreo) [mainrentry](https://rentry.co/cinnamonp)
+ㅤㅤㅤㅤㅤㅤㅤ[prns](https://pronouns.cc/@kureomi) [friends](https://rentry.co/lovemailreo) [mainrentry](https://rentry.co/cinnamonp)
 
 <img src="https://i.imgur.com/ELeWurl.png&" width="400">
 
