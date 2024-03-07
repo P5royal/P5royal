@@ -10,7 +10,7 @@
 
 <img src="https://i.imgur.com/ELeWurl.png&" width="400">
 
-ㅤㅤㅤiam an artist! i like to costumize stuff
+ㅤㅤㅤㅤiam an artist! i like to costumize stuff
 
 ㅤㅤㅤㅤㅤㅤsign my [guestbook](https://kureomi.123guestbook.com/) pslpsls
 
