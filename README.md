@@ -8,7 +8,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤ[prns](https://pronouns.cc/@kureomi) [lovemail](https://rentry.co/lovemailreo) [mainrentry](https://rentry.co/cinnamonp)
 
-<img src="https://i.imgur.com/zJRxWV8.pngg&=80&=80" width="400">
+<img src="https://i.imgur.com/ELeWurl.png&" width="400">
 
 ㅤㅤㅤiam an artist! i like to costumize stuff
 
