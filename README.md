@@ -1,8 +1,8 @@
 <img src="https://i.imgur.com/BHy6Vjd.png&=80" width="400">
 ㅤ
-ㅤㅤhai!! call me reo , i love rentries
+ㅤㅤㅤㅤhai!! call me reo , i love rentries
 
-ㅤㅤㅤㅤㅤㅤcurrently fixated on p3 ♡
+ㅤㅤㅤㅤcurrently fixated on p3 ♡
 
 ㅤㅤㅤㅤㅤrentry can glitch, wait a few secs
 
