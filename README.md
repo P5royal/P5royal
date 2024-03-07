@@ -1,8 +1,8 @@
 <img src="https://i.imgur.com/BHy6Vjd.png&=80" width="400">
 ㅤ
-ㅤhai!! my name is reo , i love rentries
+ㅤㅤhai!! call me reo , i love rentries
 
-ㅤㅤㅤㅤㅤㅤㅤ currently fixated on p3 ♡
+ㅤㅤㅤㅤㅤㅤcurrently fixated on p3 ♡
 
 ㅤㅤㅤㅤㅤrentry can glitch, wait a few secs
 
