@@ -13,8 +13,8 @@
 ㅤㅤㅤiam an artist! i like to costumize stuff
 
 ㅤㅤㅤㅤㅤㅤsign my [guestbook](https://kureomi.123guestbook.com/) pslpsls
-ㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤHI I LOVE J/K-POP ⁠♡ 
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤHI I LOVE J/K-POP ⁠♡ 
 
 <img src="https://i.imgur.com/qBiejRY.png&=80" width="400">
 ㅤ
