@@ -10,11 +10,11 @@
 
 <img src="https://i.imgur.com/ELeWurl.png&" width="400">
 
-ㅤㅤㅤㅤiam an artist! i like to costumize stuff
+ㅤㅤㅤiam an artist! i like to costumize stuff
 
-ㅤㅤㅤㅤㅤㅤㅤsign my [guestbook](https://kureomi.123guestbook.com/) pslpsls
+ㅤㅤㅤㅤㅤsign my [guestbook](https://kureomi.123guestbook.com/) pslpsls
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ i take rentry request ⁠♡ 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤmostly offtab ⁠♡ 
 
 <img src="https://i.imgur.com/qBiejRY.png&=80" width="400">
 ㅤ
