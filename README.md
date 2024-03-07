@@ -6,11 +6,11 @@
 
 ㅤㅤㅤㅤㅤrentry can glitch, wait a few secs
 
-ㅤㅤㅤㅤ[prns](https://pronouns.cc/@kureomi) [lovemail](https://rentry.co/lovemailreo) [mainrentry](https://rentry.co/cinnamonp)
+ㅤㅤㅤㅤㅤ[prns](https://pronouns.cc/@kureomi) [lovemail](https://rentry.co/lovemailreo) [mainrentry](https://rentry.co/cinnamonp)
 
 ㅤㅤㅤiam an artist! i like to costumize stuff
 
-ㅤㅤㅤㅤㅤㅤi take rentries request
+ㅤㅤㅤㅤㅤㅤsign my guestbook pslpsls
 
 <img src="https://i.imgur.com/qBiejRY.png&=80" width="400">
 ㅤ
