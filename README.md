@@ -4,7 +4,7 @@
 
 ㅤㅤㅤㅤcurrently fixated on p3 ♡
 
-ㅤㅤㅤㅤㅤrentry can glitch, wait a few secs(or refresh
+ㅤㅤㅤㅤㅤrentry can glitch, wait a few secs
 
 ㅤㅤㅤㅤㅤㅤㅤㅤ[prns](https://pronouns.cc/@kureomi) [friends](https://rentry.co/lovemailreo) [mainrentry](https://rentry.co/cinnamonp)
 
