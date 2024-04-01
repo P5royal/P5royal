@@ -15,7 +15,7 @@
 ㅤㅤㅤㅤㅤㅤㅤsign my [guestbook](https://kureomi.123guestbook.com/) pslpsls
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤmostly offtab, c+h⁠ pls ♡ 
-
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤrentry rmk soon
 <img src="https://i.imgur.com/qBiejRY.png&=80" width="400">
-rentry rmk soon
+
 ㅤ
