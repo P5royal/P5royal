@@ -2,7 +2,8 @@
 ㅤ
 ㅤㅤㅤㅤㅤhai!! call me reo , i love rentries
 
-ㅤㅤㅤㅤcurrently fixated on p3 ♡
+
+ㅤㅤㅤㅤcurrently fixated on persona ♡
 
 ㅤㅤㅤㅤㅤrentry can glitch, wait a few secs
 
