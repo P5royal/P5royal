@@ -18,7 +18,7 @@
 
 <p align="center"> i rlly love cuddles WAAA 
 <p align="center"> int if we are in the same fandom!!
-
+<p align="center"> gihtub better on mobile 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
   
 <p align="center" i loooovee >
