@@ -1,22 +1,29 @@
-<img src="https://i.imgur.com/BHy6Vjd.png&=80" width="400">
+<p align="center"><img src="https://i.imgur.com/KSjmsqq.png&=80" width="600">
 ㅤ
-ㅤㅤㅤㅤㅤhai!! call me reo , i love rentries
+<p align="center"> Hai!! call me reo , i love rentries
+<p align="center">currently fixated on persona/sky/sanrio ♡
+<p align="center"> mostly playing or offtab/afk w2i ^^
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+<p align="center"><img src="https://i.imgur.com/MJ8GSi4.png&" width="600">
+
+<h1 align="center"></[prns](https://pronouns.cc/@kureomi)>
+
+[prns](https://pronouns.cc/@kureomi) [ㅤ— ⁠♡](https://rentry.co/lovemailreo) 
+
+[mainrentry](https://rentry.co/cinnamonp)
+</h1>
 
 
-ㅤㅤㅤㅤcurrently fixated on persona ♡
+<p align="center"> i rlly love cuddles WAAA 
+<p align="center"> int if we are in the same fandom!!
 
-ㅤㅤㅤㅤㅤrentry can glitch, wait a few secs
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+  
+<p align="center" i loooovee >
 
-ㅤㅤㅤㅤㅤㅤㅤㅤ[prns](https://pronouns.cc/@kureomi) [friends](https://rentry.co/lovemailreo) [mainrentry](https://rentry.co/cinnamonp)
-
-<img src="https://i.imgur.com/ELeWurl.png&" width="400">
-
-ㅤㅤㅤiam an artist!i like to costumize stuff
-
-ㅤㅤㅤㅤㅤㅤㅤsign my [guestbook](https://kureomi.123guestbook.com/) pslpsls
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤmostly offtab, c+h⁠ pls ♡
-
-<img src="https://i.imgur.com/qBiejRY.png&=80" width="400">
+  
+<img src="https://i.imgur.com/PfwFNtJ.png&=80" width="600">
 
 ㅤ
