@@ -12,7 +12,7 @@
 
 [prns](https://pronouns.cc/@kureomi) [ㅤ— ⁠♡](https://rentry.co/lovemailreo) 
 
-[mainrentry](https://rentry.co/cinnamonp)
+[rentry](https://rentry.co/anti-thief)
 </h1>
 
 
