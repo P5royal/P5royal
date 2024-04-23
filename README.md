@@ -1,6 +1,6 @@
 <p align="center"><img src="https://i.imgur.com/KSjmsqq.png&=80" width="600">
 ㅤ
-<p align="center"> Hai!! call me reo , i love rentries
+<p align="center"> Hai!! call me leo , i love rentries
 <p align="center">currently fixated on persona/sky/sanrio ♡
 <p align="center"> mostly editing or offtab/afk w2i ^^
 
