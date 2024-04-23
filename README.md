@@ -25,6 +25,6 @@
 <p align="center" i loooovee >
 
   
-<img src="https://i.imgur.com/BnTOwy7.png&=80" width="600">
+<img src="https://i.imgur.com/PfwFNtJ.png&=80" width="600">
 
 ㅤ
