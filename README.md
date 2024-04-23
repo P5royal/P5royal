@@ -2,7 +2,7 @@
 ㅤ
 <p align="center"> Hai!! call me reo , i love rentries
 <p align="center">currently fixated on persona/sky/sanrio ♡
-<p align="center"> mostly playing or offtab/afk w2i ^^
+<p align="center"> mostly editing or offtab/afk w2i ^^
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
