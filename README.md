@@ -10,9 +10,9 @@
 
 <h1 align="center"></[prns](https://pronouns.cc/@kureomi)>
 
-[prns](https://pronouns.cc/@kureomi) [ㅤ— ⁠♡](https://rentry.co/lovemailreo) 
+[prns](https://pronouns.cc/@kureomi) [ㅤ— ⁠♡](https://rentry.org/lovemailreo) 
 
-[rentry](https://rentry.co/anti-thief)
+[rentry](https://rentry.org/anti-thief)
 </h1>
 
 
