@@ -13,6 +13,8 @@
 [prns](https://pronouns.cc/@kureomi) [ㅤ— ⁠♡](https://rentry.co/lovemailreo) 
 
 [rentry](https://rentry.co/anti-thief)
+
+![](https://komarev.com/ghpvc/?username=your-github-username&color=B22222)
 </h1>
 
 
@@ -24,7 +26,7 @@
   
 <p align="center" i loooovee >
 
-  
+
 <img src="https://i.imgur.com/PfwFNtJ.png&=80" width="600">
 
 ㅤ
