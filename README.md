@@ -14,7 +14,7 @@
 
 [rentry](https://rentry.co/anti-thief)
 
-![](https://komarev.com/ghpvc/?username=P5royal&color=B22222)
+![](https://komarev.com/ghpvc/?username=P5royal&color=B22222&label=PROFILE+VIEWS)
 </h1>
 
 
