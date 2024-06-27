@@ -1,12 +1,5 @@
 <p align="center"><img src="https://i.imgur.com/dDmTPTN.png&=80" width="600">
-ㅤ
-<p align="center"> Hai!! call me reo , i love rentries
-<p align="center">currently fixated on persona/sky/sanrio ♡
-<p align="center"> mostly offtab or afk w2i ^^
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-
-<p align="center"><img src="https://i.imgur.com/MJ8GSi4.png&" width="600">
 
 <h1 align="center"></[prns](https://pronouns.cc/@kureomi)>
 
@@ -27,6 +20,5 @@
 <p align="center" i loooovee >
 
 
-<img src="https://i.imgur.com/PfwFNtJ.png&=80" width="600">
 
 ㅤ
