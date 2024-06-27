@@ -4,6 +4,7 @@
     
 <p align="center"><img src="https://i.imgur.com/8beQ3hF.png&=80" width="600">
 
+<p align="center"> call me reo or leo, he/him If we werent close
 
 <h1 align="center"></[prns](https://pronouns.cc/@kureomi)>
 
