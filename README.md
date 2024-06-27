@@ -1,6 +1,6 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center"><img src="https://i.imgur.com/oWehpIj.png&=80" width="600">
-  <p align="center"><img src="https://i.imgur.com/h27bwyf.png&=60" width="200">
+  <p align="center"><img src="https://i.imgur.com/h27bwyf.png&=60" width="235">
     
 <p align="center"><img src="https://i.imgur.com/8beQ3hF.png&=80" width="800">
 
@@ -16,7 +16,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-<p align="center"><img src="https://i.imgur.com/h27bwyf.png&=60" width="200"> <p align="center"><img src="https://i.imgur.com/oMleZYX.png&=80" width="600">
+<p align="center"><img src="https://i.imgur.com/h27bwyf.png&=60" width="235"> <p align="center"><img src="https://i.imgur.com/oMleZYX.png&=80" width="600">
 
 
 
