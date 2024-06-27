@@ -10,9 +10,11 @@
 [ > prns](https://pronouns.cc/@kureomi) [ㅤ✮ ](https://retrospring.net/@goroplushie) 
 
 [> rntry](https://rentry.co/anti-thief)
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-  <p align="center"><img src="https://i.imgur.com/h27bwyf.png&=70" width="500">
+  
+<p align="center"><img src="https://i.imgur.com/h27bwyf.png&=70" width="500">
   <p align="center"><img src="https://i.imgur.com/Aw7Ds0x.png&=80&=80" width="600">
 
 
