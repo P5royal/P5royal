@@ -11,7 +11,6 @@
 
 [> rntry](https://rentry.co/anti-thief)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
   
 <p align="center"><img src="https://i.imgur.com/h27bwyf.png&=70" width="500">
