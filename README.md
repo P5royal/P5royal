@@ -4,7 +4,9 @@
     
 <p align="center"><img src="https://i.imgur.com/8beQ3hF.png&=80" width="600">
 
-<p align="center"> call me reo or leo, he/him If we werent close
+<p align="center"> call me reo or leo,  he / him 
+<p align="center">int if were in the same fandom
+<p align="center"> more imfo below
 
 <h1 align="center"></[prns](https://pronouns.cc/@kureomi)>
 
