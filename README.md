@@ -1,4 +1,4 @@
-<p align="center"><img src="https://i.imgur.com/KSjmsqq.png&=80" width="600">
+<p align="center"><img src="https://i.imgur.com/dDmTPTN.png&=80" width="600">
 ㅤ
 <p align="center"> Hai!! call me reo , i love rentries
 <p align="center">currently fixated on persona/sky/sanrio ♡
