@@ -10,7 +10,7 @@
 
 <h1 align="center"></[prns](https://pronouns.cc/@kureomi)>
 
-[ > rentry](https://rentry.co/anti-thief) [ㅤ✮ ](https://retrospring.net/@goroplushie) 
+[✮ > rentry](https://rentry.co/anti-thief) [ㅤ✮ ](https://retrospring.net/@goroplushie) 
  [> prns](https://pronouns.cc/@kureomi)
 
 
