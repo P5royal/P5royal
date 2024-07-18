@@ -11,7 +11,7 @@
 <h1 align="center"></[retros](https://retrospring.net/@goroplushie)>
 
 [✮ > rentry](https://rentry.co/anti-thief) [ㅤ✮ ](https://retrospring.net/@goroplushie) 
- [> prns](https://pronouns.cc/@kureomi)
+ [> retrosp](https://retrospring.net/@goroplushie)
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
