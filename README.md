@@ -8,7 +8,7 @@
 <p align="center"> call me reo or leo,  he / him 
 <p align="center">int if were in the same fandom
 
-<h1 align="center"></[prns](https://pronouns.cc/@kureomi)>
+<h1 align="center"></[retros](https://retrospring.net/@goroplushie)>
 
 [✮ > rentry](https://rentry.co/anti-thief) [ㅤ✮ ](https://retrospring.net/@goroplushie) 
  [> prns](https://pronouns.cc/@kureomi)
