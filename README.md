@@ -1,5 +1,5 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<p align="center"><img src="https://i.imgur.com/R90EoIG.png&=70" width="500">
+<p align="center"><img src="https://i.imgur.com/R90EoIG.png&=75" width="600">
     
 <p align="center"><img src="https://i.imgur.com/G00I6ZW.png&=80" width="440">
 
@@ -12,7 +12,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-<p align="center"><img src="https://i.imgur.com/frGvEmw.png&=70" width="500">
+<p align="center"><img src="https://i.imgur.com/frGvEmw.png&=75" width="600">
 
 
 
