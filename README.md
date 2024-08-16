@@ -1,8 +1,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center"><img src="https://i.imgur.com/R90EoIG.png&=80" width="600">
-  <p align="center"><img src="https://i.imgur.com/h27bwyf.png&=60" width="235">
     
-<p align="center"><img src="https://i.imgur.com/G00I6ZW.png&=80" width="480">
+<p align="center"><img src="https://i.imgur.com/G00I6ZW.png&=80" width="440">
 
 
 
@@ -12,8 +11,7 @@
  [> retrosp](https://retrospring.net/@goroplushie)
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<p align="center"><img src="https://i.imgur.com/h27bwyf.png&=60" width="235"> <p align="center"><img src="https://i.imgur.com/oMleZYX.png&=80" width="600">
+<p align="center"><img src="https://i.imgur.com/frGvEmw.png&=80" width="600">
 
 
 
