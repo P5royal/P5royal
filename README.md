@@ -11,7 +11,7 @@
 
 <h1 align="center"></[retros](https://retrospring.net/@goroplushie)>
   
-[![](https://i.imgur.com/uZUnz7R.png&=10"width="100")](https://rentry.co/anti-thief)
+[![](https://i.imgur.com/ZwFB4nT.png)](https://rentry.co/anti-thief)
 ✩ [ retrosp](https://retrospring.net/@goroplushie)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
