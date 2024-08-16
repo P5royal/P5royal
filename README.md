@@ -1,7 +1,8 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center"><img src="https://i.imgur.com/R90EoIG.png&=75" width="600">
 
-<p align="center"> " I cant decide "
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<p align="center"> " I cant decide , wether you should live or die"
     
 <p align="center"><img src="https://i.imgur.com/G00I6ZW.png&=80" width="440">
 <p align="center"> reo or leo  he/him
