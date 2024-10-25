@@ -4,7 +4,7 @@
 
 <p align="center"> " 𝘐 𝘤𝘢𝘯'𝘵 𝘥𝘦𝘤𝘪𝘥𝘦 𝘸𝘩𝘦𝘵𝘩𝘦𝘳 𝘺𝘰𝘶 𝘴𝘩𝘰𝘶𝘭𝘥 𝘭𝘪𝘷𝘦 𝘰𝘳 𝘥𝘪𝘦 "
    
-<p align="center">BIRTHDAY ARTS 25/10
+<p align="center">BIRTHDAY ARTS 10/25
     
 <p align="center"><img src="https://i.imgur.com/fDwrkwR.png&=80" width="440">
     
