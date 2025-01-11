@@ -17,13 +17,3 @@
 ✩  [![](https://i.imgur.com/Lu4ofdt.png)](https://retrospring.net/@goroplushie)
 
 <p align="center"><img src="https://i.imgur.com/6dzcqFr.png&=75" width="600">
-
-
-
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-  
-
-
-
-ㅤ
