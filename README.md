@@ -13,7 +13,6 @@
 
 <h1 align="center"></[retros](https://retrospring.net/@goroplushie)>
   
-[![](https://i.imgur.com/ZwFB4nT.png)](https://rentry.co/anti-thief)
-✩  [![](https://i.imgur.com/Lu4ofdt.png)](https://retrospring.net/@goroplushie)
+[![](https://i.imgur.com/AvtRkWa.png&=80"width="80")](https://rentry.co/anti-thief) !!
 
 <p align="center"><img src="https://i.imgur.com/6dzcqFr.png&=75" width="600">
