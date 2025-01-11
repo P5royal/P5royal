@@ -2,8 +2,8 @@
 
     
 <p align="center"><img src="https://i.imgur.com/BhJAowO.png&=80" width="440">
-<p align="center">i like persona i guessㅤ𓂃ㅤhe / him
-
+<p align="center">i like persona i guessㅤ𓂃ㅤhe / him ㅤㅤ   ★ 3w4ㅤ so/spㅤ 368
+<p align="center">
 
 <h1 align="center"></[retros](https://retrospring.net/@goroplushie)>
   
