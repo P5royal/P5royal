@@ -18,7 +18,6 @@
 
 <p align="center"><img src="https://i.imgur.com/6dzcqFr.png&=75" width="600">
 
-![](https://komarev.com/ghpvc/?username=P5royal&color=000000)
 
 
 
