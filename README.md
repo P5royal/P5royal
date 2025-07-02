@@ -1,5 +1,7 @@
 <p align="center"><img src="https://i.imgur.com/0lzl9BO.png&=75" width="200">
 
+<p align="center">alt : @fromdokja
+
     
 <p align="center"><img src="https://i.imgur.com/BhJAowO.png&=80" width="440">
 <p align="center">i like persona i guessㅤ𓂃ㅤhe / him
