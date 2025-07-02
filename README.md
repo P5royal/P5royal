@@ -4,7 +4,7 @@
 
     
 <p align="center"><img src="https://i.imgur.com/BhJAowO.png&=80" width="440">
-<p align="center"> he / him   𓂃ㅤi like persona i guess
+<p align="center"> he / himㅤ𓂃ㅤi like persona i guess
 <p align="center"> ★ㅤ☓ 
     
 <h1 align="center"></[retros](https://retrospring.net/@goroplushie)>
