@@ -10,4 +10,4 @@
   
 [![](https://i.imgur.com/n8hmPmK.png&=75"width="80")](https://rentry.co/anti-thief) !!
 
-<p align="center"><img src="https://i.imgur.com/4v24wFD.png&=75" width="500">
+
