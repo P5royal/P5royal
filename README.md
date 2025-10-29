@@ -1,4 +1,4 @@
-<p align="center"><img src="https://i.imgur.com/0lzl9BO.png&=75" width="200">
+<p align="center"><img src="https://i.imgur.com/MKNjWSt.png&=75" width="200">
 
     
 <p align="center"><img src="https://files.catbox.moe/f6kgg8.png" width="440">
