@@ -10,7 +10,7 @@
 
 
 
-[![](https://i.imgur.com/n8hmPmK.png&=75"width="80")](https://rentry.co/anti-thief) 
+[![](https://i.imgur.com/916AUfE.png&=75"width="80")](https://rentry.co/anti-thief) 
 
 
 
