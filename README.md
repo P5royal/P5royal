@@ -1,7 +1,7 @@
 <p align="center"><img src="https://i.imgur.com/DM8Oq2I.png&=75" width="200">
 
     
-<p align="center"><img src="https://files.catbox.moe/f6kgg8.png" width="440">
+<p align="center"><img src="https://files.catbox.moe/hqhgmm.png" width="440">
 <p align="center"> altㅤ𓂃ㅤ@fromdokja
 
 
