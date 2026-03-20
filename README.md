@@ -2,7 +2,7 @@
 
     
 <p align="center"><img src="https://files.catbox.moe/puhiul.png" width="440">
-<p align="center"> altㅤ𓂃ㅤ@fromdokja
+<p align="center"> WIPㅤ𓂃ㅤi like persona and bllk 
 
 
     
